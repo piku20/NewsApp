@@ -1,1 +1,1 @@
-![XRecorder_04092023_004933](https://github.com/piku20/NewsApp/assets/51356394/41816785-a8da-43de-9f1a-64137c340741)
+![XRecorder_04092023_004933](https://github.com/piku20/NewsApp/assets/51356394/6c86ff19-8308-407a-8574-e8965ff5f930)
